@@ -1,2 +1,1 @@
-ddddd
-ddd
+en büyük fener
